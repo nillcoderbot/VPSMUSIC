@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 ᴀɴᴏɴ ダ ᴍᴜsɪᴄ 」──
+    ──「 Sukoon ダ Music 」──
 </h2>
 
 <p align="center">
